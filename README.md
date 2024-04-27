@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Loopyx3
+- 👀 I’m interested in web3 and gaming
+- 🌱 I’m currently learning c#
+- 📫 How to reach me discord: agavebeanzqu
